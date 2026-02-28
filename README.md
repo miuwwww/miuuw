@@ -1,5 +1,5 @@
 <div id="header" align="center">
-  <img src="https://tenor.com/ru/view/doublefedora-forsaken-roblox-forsaken-mafioso-forsaken-mafioso-gif-2282668036302333373" width="100"/>
+  <img src="https://tenor.com/ru/view/doublefedora-forsaken-forsaken-roblox-chance-forsaken-mafioso-gif-17715420151195597567" width="100"/>
 </div>
 
 hellooo ! my name is NORI ^_^
