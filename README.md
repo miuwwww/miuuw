@@ -1,5 +1,5 @@
 <div id="header" align="center">
-  <img src="https://media.giphy.com/media/M9gbBd9nbDrOTu1Mqx/giphy.gif" width="100"/>
+  <img src="https://tenor.com/ru/view/doublefedora-forsaken-roblox-forsaken-mafioso-forsaken-mafioso-gif-2282668036302333373/>
 </div>
 hellooo ! my name is NORI ^_^
 eng\rus ( she\her > any pronounce )
